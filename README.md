@@ -1,0 +1,2 @@
+# SIGED.certificado.preparatoria.autenticacion.GOBG690703MMNNRL08
+GOBG690703MMNNRL08
